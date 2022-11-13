@@ -1,1 +1,0 @@
-# hdqeing.github.io
